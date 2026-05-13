@@ -4,7 +4,7 @@
 
 Hey DhenCarzon!
 
-Mona here. I'm done preparing your exercise. Hope you enjoy! 💚
+Mona here. I'm done preparing your exercise. Hope you enjoy! Ok!💚
 
 Remember, it's self-paced so feel free to take a break! ☕️
 
